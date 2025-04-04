@@ -23,3 +23,4 @@ These scripts were actively used from **2021 to 2023**. No further updates are p
 
 ---
 👾 **For educational purposes only!**  
+Don't get yourself banned! It's a game for fun afterall :)
